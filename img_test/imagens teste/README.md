@@ -34,6 +34,6 @@ Rótulo: OSTEOARTRITE
 
 Nome do arquivo: normal2.png
 
-Fonte: https://artritereumatoide.blog.br/osteoartrite-de-joelho-qual-melhor-tratamento-para-dor-a-longo-prazo/
+Fonte: https://pedrogiglio.com/desgaste-do-joelho-e-cartilagem-desgastada/
 
 Rótulo: NORMAL
